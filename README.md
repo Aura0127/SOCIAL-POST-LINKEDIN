@@ -13,7 +13,7 @@ MEMBER 4: AMUDHAN.M <br>
  LINKEDIN POST (SOCIAL POST): https://www.linkedin.com/posts/amudhan-m-272b22385_aiagents-ai-hindsight-ugcPost-7449510360954458112-T1sP?utm_source=share&utm_medium=member_desktop&rcm=ACoAAF8HRPYB5nGrGAgaWgrsprKroGeWUBKbhOI
 <br> 
 MEMBER 5: SHRI NAVIN SA <br>
- LINKEDIN POST (SOCIAL POST): https://www.linkedin.com/feed/update/urn:li:activity:7449496829102067713/?originTrackingId=WU10hpJxh0wc%2FQU4mdRKdw%3D%3D
+ LINKEDIN POST (SOCIAL POST): https://www.linkedin.com/posts/shrinavin-sa-51162022b_aiagents-llm-hindsight-activity-7449496829102067713-HA3C?utm_source=share&utm_medium=member_desktop&rcm=ACoAAF9MONEBI17Hw5CBWwP4H42z89rjZrQmQhQ
 <br> 
 MEMBER 6: SHAAN GS <br>
  LINKEDIN POST (SOCIAL POST) : https://www.linkedin.com/posts/shaangs_aiagents-ai-hindsight-ugcPost-7449515687221575680-mwtx?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFRwRBEBSb2tacReLu3tbsRLbOVi6f_NGIk
