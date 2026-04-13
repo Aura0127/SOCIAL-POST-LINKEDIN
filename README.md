@@ -15,7 +15,7 @@ MEMBER 4: AMUDHAN.M <br>
 MEMBER 5: SHRI NAVIN SA <br>
  LINKEDIN POST (SOCIAL POST): https://www.linkedin.com/feed/update/urn:li:activity:7449496829102067713/?originTrackingId=WU10hpJxh0wc%2FQU4mdRKdw%3D%3D
 <br> 
-MEMBER 5: SHAAN GS <br>
+MEMBER 6: SHAAN GS <br>
  LINKEDIN POST (SOCIAL POST) : https://www.linkedin.com/posts/shaangs_aiagents-ai-hindsight-ugcPost-7449515687221575680-mwtx?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFRwRBEBSb2tacReLu3tbsRLbOVi6f_NGIk
 <br> 
 
